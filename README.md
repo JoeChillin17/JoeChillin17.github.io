@@ -20,8 +20,4 @@
 - *BustaSnagz*
 - *s0muel*
 - *Iwono*
-
-
-
-
-
+**THEY ARE ALL GAY AND ON THE SPECTRUM**
