@@ -1,4 +1,4 @@
-# *Information Scientists*
+# *Information Scientist*
 **Hello, World! Welcome to my first website!!**
 
 
