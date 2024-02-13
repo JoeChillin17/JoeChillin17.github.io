@@ -14,7 +14,7 @@
 - Knowledege in Databases
 - Team Player
 - Problem Solver
-- Good Communication Skills
+- Good Communication Skills 
   
 
 
