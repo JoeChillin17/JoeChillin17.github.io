@@ -21,4 +21,4 @@
 
 
 
-theme: jeykll-theme-mediator
+
