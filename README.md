@@ -16,7 +16,10 @@
 - Problem Solver
 - Good Communication Skills 
   
-
+### *My Subordinates*
+- *BustaSnagz*
+- *s0muel*
+- *Iwono*
 
 
 
